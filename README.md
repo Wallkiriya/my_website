@@ -6,7 +6,7 @@
 
  Контакты:  
  email: akula@list.ru  
- [Telegram:](https://t.me/Wallkiriya)  
+ [Telegram: @Wallkiriya](https://t.me/Wallkiriya)  
 
 *Внутриннее мироощущение: «Дорогу осилит идущий🍀»*  
 
